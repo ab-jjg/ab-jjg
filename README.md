@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on community-scale digital autonomy
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am the descendant of a famous pirate 🏴‍☠️
-- More to come!
